@@ -7,12 +7,12 @@ https://drive.google.com/drive/folders/1EIOwYAm5gjSr7WE2FOdRZ5pBUcSEusKu?usp=sha
 
 Trabalhos científicos publicados:  
 
-2015 
+  2015 
 • “Qualidade em serviços de saúde: Desenvolvimento de uma escala”, XXXV Encontro  
 nacional de engenharia de produção (ENEGEP), 2015.  
 Link: http://www.abepro.org.br/biblioteca/TN_STO_207_232_27550.pdf  
 
-2016 
+  2016 
 • “Desenvolvimento de uma escala de avaliação de serviços de transporte público:  
 resultados preliminares”, IV Encontro do Centro-Oeste Brasileiro de Engenharia de  
 Produção (ENCOBEP), 2016.  
